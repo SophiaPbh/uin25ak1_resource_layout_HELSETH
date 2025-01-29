@@ -1,2 +1,0 @@
-# uin25ak1_resource_layout_HELSETH
- 
